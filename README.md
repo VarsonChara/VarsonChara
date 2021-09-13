@@ -1,4 +1,4 @@
-Hi! Im Angel, even if the account name says something else 👀
+Hi! Im Tails, even if the account name says something else 👀
 
 Im a programmer who works in Unity, currently most of my professional experience is in game developement.
 
